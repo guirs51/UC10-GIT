@@ -1,10 +1,10 @@
 # Lookism 
 
-Park hyung suk, um jovem gordo , baixo e feio ganha um segundo alto magro e bonito. E num mundo onde Somente beleze importa, ele tem que viver com os dois corpos, cada um com sua realidade. 
+Park hyung suk, um jovem gordo , baixo e feio ganha um segundo alto, magro e bonito. E num mundo onde Somente beleze importa, ele tem que viver com os dois corpos, cada um com sua realidade. 
 
 ---
 
-## motivos para assistir 
+## Motivos para assistir 
 
 - historia - a historia aborda temas importantes como a vida escolar, empresas do ramo da beleza, seita satanicas, brigas de gangues,  mais seita (em nome de deus) , entre outras
 - personagens com Otimas historias - personagens com histórias marcantes, como bullyng desde a infancia ou sacrificio de uma seita 
