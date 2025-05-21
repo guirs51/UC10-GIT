@@ -33,4 +33,5 @@ pontos **fortes** e **fracos**
 ## Motivos para assistir
  além do gun, a evolução dos personagem, tanto fisico como mental. as critas e a superação de certos personagem a traumas de infancia(seita)
 
+## Por que essa obra é importante pra mim
 Essa obra me prende muito, com lutas incriveis e uma histoira que vai alem de usa obra, com um universo compartilhado com outras obras que eu gosto muito como questim, manager kim, how to fight e mais alguns;
